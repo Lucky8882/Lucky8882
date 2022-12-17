@@ -6,6 +6,8 @@
 -       Email : 2022peb5136@mnit.ac.in
 -               lucky8882041@gmail.com
 
+-     LinkedIn :   https://www.linkedin.com/in/lucky8882041/
+
         
 
 <!---
